@@ -28,7 +28,7 @@ Copyright ©️ [sodha](https://telegram.me/sodha_sarkar)
 </details>
 
 
-### Copyright ©️ [Tech VJ](https://telegram.me/sodha_sarkar)
+### Copyright ©️ [sodha](https://telegram.me/sodha_sarkar)
 
 <b>Selling This Repo Or Code Of This Repo For Money Is Strictly Prohibited 🚫</b>
 
