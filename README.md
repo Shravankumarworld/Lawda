@@ -10,11 +10,10 @@
 
 <b><details><summary>Tap On Me For See Credit</summary>
 
-💝 Credit Goes To [Tech VJ](https://telegram.me/sodha_sarkar) So Don't Forgot To Give Credit
+💝 Credit Goes To [sodha](https://telegram.me/sodha_sarkar) So Don't Forgot To Give Credit
 
-💖 And Thank You So Much To All Who Help In This Journey 💕
 
-Copyright ©️ [Tech VJ](https://telegram.me/sodha_sarkar)
+Copyright ©️ [sodha](https://telegram.me/sodha_sarkar)
 
 </b>
 </details>
